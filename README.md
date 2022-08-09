@@ -1,4 +1,4 @@
-# A few facts about yourself
+# A few facts about myself
 
 I study in netology
 
